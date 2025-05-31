@@ -2,5 +2,5 @@
 👀 永久免费地址 抖阴成人版
 🌱 免费无限观看免翻墙地址
 😄 https://zz.douyin18.com/
-💞️ 最新免翻墙地址 https://{share.dy_web_zz}.com
+💞️ 最新免翻墙地址 https://zz.douyin18.com/
 📫 发送任意信件到回家邮箱 yeqi451@gmail.com
